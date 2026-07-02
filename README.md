@@ -1,10 +1,10 @@
 # uhh. I'm Eunomia.
 
-i'm just a soy developer, what else...
+i'm just a developer, what else...
 
-- contact: @eepyeunomia on discord / eepyeunomia@gmail.com
+- contact: @ykeuno_ on discord && ig // eepyeunomia@gmail.com
 
-js / c++ / py / java (end me)
+js / c++ / py / java
 
 cyberlaunch & cyberpatriot competitor
 
