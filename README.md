@@ -4,7 +4,7 @@ i'm just a developer, what else...
 
 - contact: @ykeuno_ on discord && ig // ykeunomadeit@gmail.com
 
-js / c++ / py / java
+js / c / c++ / py / java
 
 cyberlaunch & cyberpatriot competitor
 
